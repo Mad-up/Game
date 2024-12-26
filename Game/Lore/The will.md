@@ -1,0 +1,8 @@
+---
+lore: World
+---
+Gods aren't supposed to die.
+Not gods of us men, mere figments
+Created from devotion shaping the will, of the god beyond of what we perceive as reality. This reality in fact, planes of shapes and time and magic are a slowly disolving corpse of a dying god. All the rules, laws of what we call with our simplistic tools such as phisics and math trying to describe the will of that god permeating every sub-atomic particle every breath of every creature every birth and death of a star and black hole untill the very end where all will be dark and cold and nothing that persists can be moved by this Will. 
+Gods aren't supposed to die, yet our lives are just a byproduct of death of a being so beyond our comprehension, that we call it a singularity. We say it breaks all laws of physics and no matter how much closer we try to study it still is infinitely beyond our understanding.
+We're not however merely destined to follow it's path. With tools we were given; the consciousness and magic we're able to slightly bend and affect the will. It allows us to bring life to things of dead and to elemets, to collide dimensions, alchemize monstrosities and order our gods. This power is dangerous and it's rare someone has the fortitude to pursue this path and even fewer come out unscathed. We're the few who observe and keep peace, by not letting this knowledge fall into inappropriate hands. Thus anyone who stumbles upon it has to be tested. We may not allow the end be brought sooner than the will decided.
